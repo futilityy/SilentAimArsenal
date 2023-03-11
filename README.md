@@ -1,2 +1,0 @@
-# SilentAimArsenal
-nun
